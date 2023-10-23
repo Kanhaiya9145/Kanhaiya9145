@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kanhaiyakr9472637464@gmail.com**
 
-- 📄 Know about my experiences [My_Resume...](https://drive.google.com/file/d/1NmaJIoxSM_-ZZfNNZHWWsqrMlqiTa5u6/view?usp=drive_link)
+- 📄 Know about my experiences [My_Resume...](https://drive.google.com/file/d/1vr-IvSiYYDnX1tHh_qsDeYLDjBYnAAGe/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
